@@ -1,0 +1,1 @@
+# Ryzyko-kredytowe-i-operacyjne
